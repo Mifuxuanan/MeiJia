@@ -12,4 +12,4 @@ I have always been driven by a pure passion for explaining the latent complexiti
 
 You can find my CV here: [Mei's Curriculum Vitae](../assets/CV_MeijIA.pdf).
 
-[Email(jiamei.meow@gmail.com)/[Github](https://github.com/Mifuxuanan)/[LinkedIn](www.linkedin.com/in/mei-jia-35985632a)
+[Email: jiamei.meow@gmail.com](jiamei.meow@gmail.com)/[Github](https://github.com/Mifuxuanan)/[LinkedIn](www.linkedin.com/in/mei-jia-35985632a)
